@@ -1,2 +1,6 @@
 # VROIDGameByEndrophyon
-VROIDGame By Endrophyon
+VROIDGame By Endrophyon... Enjoy!!!
+
+# Donation
+
+Soon
